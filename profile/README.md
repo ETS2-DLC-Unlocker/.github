@@ -1,4 +1,4 @@
-# 🍃 Euro Truck Simulator 2 DLC Unlocker - Free DLC Unlocker (Working as of 2025!)
+# 🍃 Euro Truck Simulator 2 DLC Unlocker - Free Expansion Mod
 
 ## 📥 Getting Started
 
